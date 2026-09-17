@@ -1,0 +1,1 @@
+# NicaTrade-Gestion-Informacion
